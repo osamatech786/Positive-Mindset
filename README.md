@@ -12,7 +12,7 @@ Your daily dose of motivation
 * Build healthy and good habits today. Live healthy and good life in future
 * Grind hard today enjoy life in future
 * Feed your brain with positivity daily.  Brain is like a plant. You water it with positivity it'll grow.  You stop watering it it'll die.  You do bleech or chemical water (negativity) it'll suffer.  Your brain suffer means you'll suffer.  So, water it daily with positivity 💦🪴
-* 
+* Forget about what time you already have wasted in procrastination. Focus on what you can do from now on
 * 
 * 
 * 
